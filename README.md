@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @AleksandraKrupa
+- 👀 I’m interested in programming, medicine, architecture, fashion
